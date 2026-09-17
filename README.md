@@ -1,2 +1,2 @@
-# Matchup-Master-Privacy-Policy
+# Matchup Master Privacy Policy
 Privacy Policy for Matchup Master
